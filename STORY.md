@@ -1,1 +1,1 @@
-After driving people to their destinations for free, Jeff volunteers as a helper by making dinner at a soup kitchen. He then pulls out his laptop in a place with free wifi to work on his start-up. Then, proceeds to create a very popular app called, “Touching Grass Simulator”. Next, he acts like a typical comic book superhero, and proceeds to fight various criminals. After such a day, Jeff eats a salad, brushes his teeth, and goes to sleep.
+
